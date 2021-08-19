@@ -17,3 +17,19 @@ Life was like a box of chocolates, you never know what you're gonna get.
 3、我不
 
 没想到，小意居然还很赞同我这个总结。
+
+
+
+今日照片三张：
+
+![image-20210820005747250](C:\Users\mcmin\AppData\Roaming\Typora\typora-user-images\image-20210820005747250.png)
+
+
+
+![image-20210820005753037](C:\Users\mcmin\AppData\Roaming\Typora\typora-user-images\image-20210820005753037.png)
+
+
+
+
+
+![image-20210820005757438](C:\Users\mcmin\AppData\Roaming\Typora\typora-user-images\image-20210820005757438.png)
